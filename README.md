@@ -1,1 +1,1 @@
-![image alt](https://github.com/Rainofdespair/Rainofdespair/blob/15def858831ae90ae82de32deab73d0e495b3081/stamp0822.png)
+![image alt](https://github.com/Rainofdespair/Rainofdespair/blob/04a6fd897ed726b22b0ecb418aa0eae0360c43f1/stamp0822%20(1).png)
